@@ -10,4 +10,4 @@ Utilizo em aula a plataforma [Alura](https://www.alura.com.br/)
 
 souto.cassio@escola.pr.gov.br
 
-![](![image](https://github.com/user-attachments/assets/790d8a11-6c38-4b6d-893a-5ad14aba793b)
+![](https://media1.tenor.com/m/vzAeThjGJLAAAAAC/nando-moura-bolsonaro-make-face.gif)
